@@ -1,2 +1,2 @@
 # QuantumultX
-自用
+哈哈
